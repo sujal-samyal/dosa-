@@ -1,0 +1,1 @@
+urad dal,riceflour,salt to taste,curd

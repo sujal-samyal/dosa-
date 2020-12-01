@@ -1,0 +1,1 @@
+1.first mix urad dal,rice flour with water and make a paster with it and add some curd . 
